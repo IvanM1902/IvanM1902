@@ -31,7 +31,7 @@ My academic background provided a solid foundation and broad exposure to various
 
 ### 📫 Let's Connect!
 
-* [Your LinkedIn Profile](https://www.linkedin.com/in/ivan-medved/)
+* [Linked-in](https://www.linkedin.com/in/ivan-medved/)
 
 
 
